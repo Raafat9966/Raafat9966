@@ -11,4 +11,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: 
                       * [Facebook](https://www.facebook.com/raafat.basheer)
                       * [LindeIn](https://www.linkedin.com/in/raafat-basheer-713a00a4)
-                      * [Email](raafat.basheer@yahoo.com)
+                      * Email: raafat.basheer@yahoo.com
